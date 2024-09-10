@@ -1,4 +1,3 @@
-Dylan 
+Dylan CS major from mesa, az
 
 Nyle
-CS MAJOR FROM PEORIA, ARIZONA. I LOVE VIDEO GAMES AND MUSIC :D
