@@ -1,4 +1,4 @@
 Dylan 
 
 Nyle
-CS Major from Peoria, Arizona. I love video games and music :)
+CS MAJOR FROM PEORIA, ARIZONA. I LOVE VIDEO GAMES AND MUSIC :D
